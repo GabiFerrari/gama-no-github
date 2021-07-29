@@ -1,0 +1,1 @@
+Estou muito animada com o curso da GAMA ACADEMY e espero muito conseguir fazer todos os desafios, provas e chegar no final sabendo fazer tudo! 
